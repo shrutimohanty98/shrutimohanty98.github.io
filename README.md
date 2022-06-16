@@ -1,1 +1,1 @@
-Check out the minimal portfolio at https://chriskhanhtran.github.io/minimal-portfolio
+My portfolio at https://shrutimohanty98.github.io/
